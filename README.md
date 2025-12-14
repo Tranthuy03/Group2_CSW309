@@ -6,7 +6,10 @@ Nguyễn Duy
 
 Hai link cho video nặng quá bị hạn chế không đăng đc ạ
 Here is link youtube project
+
+
 link1   https://youtu.be/r0P8kQuHC3s
+
 link2   https://youtu.be/owFA142Cvbc
 
 
