@@ -4,4 +4,9 @@ Trần Thị Ngọc Thủy
 Nguyễn Thị Phương VY
 Nguyễn Duy
 
+Hai link cho video nặng quá bị hạn chế không đăng đc ạ
 Here is link youtube project
+
+
+Đây là link drive
+https://drive.google.com/drive/folders/1siwMqw4nKTKLrdS_BWLvS5eQVw6o8nRo?usp=sharing
